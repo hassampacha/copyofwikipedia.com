@@ -1,0 +1,1 @@
+# copyofwikipedia.com
